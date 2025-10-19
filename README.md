@@ -5,4 +5,4 @@ this unit is for murdoch university student. provide online quiz, assignment 1, 
 
 i will do both assignments from scratch to adjust every semester question
 
-price indicated above is for assignment 1.text me via whatsapp +65 83037469 or telegram @ggxoxoxo
+text me via whatsapp +65 83037469 
